@@ -1,0 +1,1 @@
+# Nicel-Analiz-Ve-Sharpe-Orani
